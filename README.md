@@ -1,1 +1,1 @@
-Portofoliu| GamerGalaxy
+Portofoliu | GamerGalaxy
